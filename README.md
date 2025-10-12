@@ -23,7 +23,7 @@ Currently working at **[Rently](https://www.rently.com/)**, where I contribute t
 ---
 
 ### 📫 Connect
-📧 rishi.chowdhury.dev@gmail.com  
+📧 Rishibarua08@gmail.com  
 💼 [linkedin.com/in/rishibarua](https://www.linkedin.com/in/rishibarua)  
 
 ---
